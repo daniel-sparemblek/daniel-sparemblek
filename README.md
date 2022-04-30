@@ -1,4 +1,4 @@
-Hi! I'm Daniel Sparemblek. Currently pursuing my Masters degree @ KU Leuven, Faculty of Engineering Science.
+Hi! I'm Daniel Sparemblek. Currently pursuing my Master's degree @ KU Leuven, Faculty of Engineering Science.
 
 Bachelor's degree from University of Zagreb, Faculty of Electrical Engineering and Computing.
 
